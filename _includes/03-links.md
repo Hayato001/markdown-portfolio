@@ -1,1 +1,1 @@
-[GitHub Profile] (https://github.com/Hayato001)
+[GitHub](http://github.com)
